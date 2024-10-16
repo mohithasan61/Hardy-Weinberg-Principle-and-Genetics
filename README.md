@@ -1,1 +1,0 @@
-# Hardy-Weinberg-Principle-and-Genetics
